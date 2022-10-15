@@ -1,1 +1,1 @@
-# encortez.github.io
+For personal use.
